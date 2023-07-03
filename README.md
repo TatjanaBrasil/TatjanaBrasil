@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TatjanaBrasil
 - 👀 I’m interested in embroidery
-- 🌱 I’m currently learning portugese language and new types embroideries
-- 💞️ I’m looking to collaborate with colleagues in Brasil 
+- 🌱 I’m currently learning portugese language and new types of embroideries
+- 💞️ I’m looking to collaborate with colleagues from Brasil 
 - 📫 How to reach me via Twitter or Discord
 
 <!---
